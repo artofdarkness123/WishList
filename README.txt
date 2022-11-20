@@ -1,6 +1,6 @@
 # WishList
 
-LTT screwdriver (black & orange wiwth black shaft)
+LTT screwdriver (black & orange with black shaft)
 https://www.lttstore.com/products/screwdriver?variant=39857021976679
 
 LTT backpack
