@@ -8,3 +8,6 @@ https://www.lttstore.com/products/backpack
 
 LTT Screwdriver Bit Set
 https://www.lttstore.com/products/bits?variant=39857025122407
+
+LTT magnetic cable management
+https://www.lttstore.com/pages/magnetic-cable-management
